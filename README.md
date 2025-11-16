@@ -1,0 +1,1 @@
+# EAD26-U07.sintesi-audio
